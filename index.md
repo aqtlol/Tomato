@@ -1,3 +1,3 @@
 Look at all those 🍅
 
-October 5 2022
+[Day 1](day1.html)

@@ -21,3 +21,8 @@ God damn this stepik is taking a while!
 
 This is definitley the most amount of notes that I have taken for a stepiks because there is a lot to unpack but I can tell that I am definitley learning. I am acing the activities on there so I can tell you all about a linked list thanks to my studying. Should be able to knock this out on the next pomodoro. I also got interupted during this pomodoro becasue Jackie and Hartej got to the library so I restarted my timer to get back into the flow state.
 ## Pomodoro #5 🍅🍅🍅🍅🍅
+This took a while goddamn ahaha
+* Finished all of chapter 4 stepiks
+* Started chapter 9 stepiks
+
+For this pomodoro there were lots of interuptions because of constant motion. Me and my friends at the library were constantly getting up and moving to a new spot. Then it was hard to get into the swing of things again because we were talking for a bit but I restarted my timer and was able to focus up and finish what I needed to. I didn't think this stepik would take my whole day today but it really did. Then again my whole day was not 5 pomodoros so maybe I need to reavluate how I spend my time.

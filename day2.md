@@ -15,3 +15,9 @@ Kind of went a little overtime on this one but I was really focused on my note t
 
 Lots to unpack in today's stepiks. Going over linked lists so I am learning a lot that I do not know. Stepik 4.4 goes over the adding in new nodes to your linked list. Making good notes is important so I can go over them later if necessary.
 ## Pomodoro #4 🍅🍅🍅🍅
+God damn this stepik is taking a while!
+* Stepik 4.4
+* Stepik 4.5
+
+This is definitley the most amount of notes that I have taken for a stepiks because there is a lot to unpack but I can tell that I am definitley learning. I am acing the activities on there so I can tell you all about a linked list thanks to my studying. Should be able to knock this out on the next pomodoro. I also got interupted during this pomodoro becasue Jackie and Hartej got to the library so I restarted my timer to get back into the flow state.
+## Pomodoro #5 🍅🍅🍅🍅🍅

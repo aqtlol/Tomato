@@ -13,3 +13,6 @@ Got a little distracted helping Isabelle with UCSD applications. I know that I s
 Now that I read the prompt for this project. I am not sure if this reading is best for the prompt. But I do feel that I really needed to read this and I am going to finish the reading.
 
 ## Pomodoro #3 🍅🍅🍅
+* Finished reading Seek and Speak Your Truth
+
+After reading this I feel that while it may not help me for the project I have to write at hand I found this reading greatly helpful for my personal life. I feel like hoensty and free speach is something very important to when it comes to being human and making good relationships. These 2 seem to disapearring as people want to appear polite. I am going to use what I learned from reading to establish better relationships with my friends, especially my best friends. I am actually on the way to talk to Jackie right now and I can't wait to just have a talk with her, it's been a while since we have talked her and I.

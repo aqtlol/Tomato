@@ -9,4 +9,5 @@ Dang I got super side tracked with my work today. I wanted to start this pomodor
 
 I didn't like the author and his tone of voice. It gave me a privileged arrogant feel. I can't wait to expose the false ideas of meritocracy in his work.
 
-## Pomodoro #2 🍅🍅
+## Reflect 
+Today I did not really work with the pomodoro method. It was getting late after 11 and I feel like I just grinded until right now. I just worked and kept working with music and I got into a good focused zone that I am still in. I might keep taking advantage of this state. I guess I am more of a night time studier, but I also have been going to bed really late this weekend and took a nap earlier today so maybe my sleep scedule is a little screwed up. I feel like I am finally catching up to being almost caught up. Just have to watch some lectures and do my PA's for CSE 12 and I will be all caught up! Wish me luck :)
